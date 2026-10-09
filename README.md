@@ -1,0 +1,2 @@
+# premium-stone-setting-001-stone-setting-technique-tracke
+Tired of forgetting which stone setting technique worked best for a particular gem? Your practice log is scattered across notebooks and sticky notes, making it impossible to track your improvement over time.  The Stone Setting Technique Tracker transforms your scattered notes into a systematic, searchable database of every setting attempt. Log key
